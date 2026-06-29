@@ -1,4 +1,4 @@
-
+Experience plants vs brainrots like never before with premium plants vs brainrots Script, the #1 Script. Includes esp and teleport for unbeatable
 
 
 
