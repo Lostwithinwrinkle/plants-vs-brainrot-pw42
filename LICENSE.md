@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Lostwithinwrinkle.github.io/plants-vs-brainrot-pw42/ ) |
  |---------------------|----------------------:|
 
 
